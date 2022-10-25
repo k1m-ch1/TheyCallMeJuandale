@@ -1,2 +1,1 @@
-New to coding
-Interested in robotics
+Look at me hector 
